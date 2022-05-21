@@ -17,8 +17,3 @@
 ![Screenshot (1136)](https://user-images.githubusercontent.com/68727623/169643827-e3d48e14-63c5-4267-9afb-29e6f7b2a675.png)
 ## Tunggakan
 ![Screenshot (1137)](https://user-images.githubusercontent.com/68727623/169643828-e2a3e478-c83f-4ef0-9dc4-1aedc37d42fe.png)
-
-
-![Screenshot (1138)](https://user-images.githubusercontent.com/68727623/169643829-ce4dbc3b-a505-4a7a-b1cb-62bdbd78f749.png)
-![Screenshot (1139)](https://user-images.githubusercontent.com/68727623/169643830-242c147a-dee4-4a7e-bdda-1e218ce62da5.png)
-![Screenshot (1140)](https://user-images.githubusercontent.com/68727623/169643833-74cac86e-3e02-427d-ab77-f15c41b759f1.png)
